@@ -1,0 +1,2 @@
+# tugas
+akhire masa studi
